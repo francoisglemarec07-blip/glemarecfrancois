@@ -1,5 +1,4 @@
- Étudiant en BUT Informatique à l’IUT de Limoges.Hi there 👋 👋 Salut, moi c’est Théo Nidos 👨‍💻 À propos de moi 🎓 Étudiant en BUT Informatique à l’IUT de Limoges.
-Hi there 👋 👋 Salut, moi c’est Théo Nidos 👨‍💻 À propos de moi 🎓 Étudiant en BUT Informatique à l’IUT de Limoges.
-Hi there 👋 👋 Salut, moi c’est Théo Nidos 👨‍💻 À propos de moi 🎓 Étudiant en BUT Informatique à l’IUT de Limoges.
-Hi there 👋 👋 Salut, moi c’est Théo Nidos 👨‍💻 À propos de moi 🎓 Étudiant en BUT Informatique à l’IUT de Limoges.
-Hi there 👋 👋 Salut, moi c’est Théo Nidos 👨‍💻 À propos de moi 🎓 Étudiant en BUT Informatique à l’IUT de Limoges.
+Hi my name is Nicolas Rousseau👋
+🌍 I'm based in Toulouse
+🚀 I'm currently a student of Master MIAGE specialized in data
+🌱 I'm learning
